@@ -1,2 +1,2 @@
-#👋 Hi, I’m Adrian Alb | Generic-Chain
+#👋 Hi, I’m Generic-Chain
 
